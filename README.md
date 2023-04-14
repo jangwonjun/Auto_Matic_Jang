@@ -1,2 +1,2 @@
-# automaticjang
+# Auto_Matic_Jang
 
